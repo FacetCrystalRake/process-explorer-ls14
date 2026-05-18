@@ -1,4 +1,4 @@
-# 
+# smart Advanced SystemCare para PC plugins é o melhor Advanced SystemCare para PC plugins com remocao de arquivos temporarios e personalizacao da barra de tarefas. Seguro,
 
 
 
